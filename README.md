@@ -1,2 +1,0 @@
-# shortgamestudio.github.io
-yarrak
